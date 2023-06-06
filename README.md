@@ -12,11 +12,11 @@
 
 -  📫 How to reach me -
   
-    Contact Details:
-📲 Cell Number/WhatsApp: +8801943480240 
+  Contact Details:
+ 📲 Cell Number/WhatsApp: +8801943480240 
 
-📨Email:
-**mridulbiswas281@gmail.com**
+ 📨Email:
+ **mridulbiswas281@gmail.com**
 
 -⚡ Fun fact **Express to impress myself**
 
