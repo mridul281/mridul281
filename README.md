@@ -11,9 +11,10 @@
 - 💬 Ask me about **Test Automation**
 
 -  📫 How to reach me -
--  
+  
     Contact Details:
 📲 Cell Number/WhatsApp: +8801943480240 
+
 📨Email:
 **mridulbiswas281@gmail.com**
 
